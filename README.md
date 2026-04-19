@@ -14,6 +14,8 @@
 
 [mყ ριᥒtᥱrᥱst](https://pin.it/2pGeruz4f)
 
+[mყ rᥱᥒtrყ](https://rentry.co/minzey)
+
 <a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/550/550470opln9i59wi.gif" width=93 height=54 border=0></a>
 
 <a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/229/229242i9aehfvxzb.gif" width=400 height=35 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
