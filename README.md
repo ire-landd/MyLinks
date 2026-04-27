@@ -14,7 +14,7 @@
 
 [mყ ριᥒtᥱrᥱst](https://pin.it/2pGeruz4f)
 
-[mყ rᥱᥒtrყ](https://rentry.co/minzey)
+[mყ rᥱᥒtrყ](https://rentry.co/MoruteCats)
 
 <a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/550/550470opln9i59wi.gif" width=93 height=54 border=0></a>
 
